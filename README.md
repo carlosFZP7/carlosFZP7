@@ -1,2 +1,4 @@
 - 👋 Eae, aqui é o @carlosFZP7
-- 👀 estou interesado em fazer jogos.
+- 👀 estou interesado nu curinthians
+- 🇧🇷 estou no 1 ano do ensino medio
+- 🦅 VAI CURINTHIA!!!
